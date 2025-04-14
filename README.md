@@ -5,6 +5,7 @@
 - 📫 How to reach me: please request email
 - 😄 Pronouns: he/his
 - ⚡ Fun fact: I can walk on my hands and juggle
+- fun fact 2: I also like to do partner stunts and cheerleading 
 
 <!---
 dodgesun92/dodgesun92 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
